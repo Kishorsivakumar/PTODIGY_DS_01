@@ -19,4 +19,4 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 For any inquiries or collaborations, feel free to reach out:
 
 - Email: [kishorsiva7777@gmail.com](mailto:kishorsiva7777@gmail.com)
-- LinkedIn: [Kishor Sivakumar](ttps://www.linkedin.com/in/kishor-sivakumar-b4a82025b/)
+- LinkedIn: [Kishor Sivakumar](https://www.linkedin.com/in/kishor-sivakumar-b4a82025b/)
